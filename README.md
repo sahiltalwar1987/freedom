@@ -1,4 +1,2 @@
-# freedom
-for freedom to choose 
-Gamdhi 
+Gandhi 
 Mandela 
